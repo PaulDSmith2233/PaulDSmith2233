@@ -10,3 +10,6 @@ You can click the Preview link to take a look at your changes.
 --->
 
 https://yozanaclasses.com
+https://yozanaclasses.com/vegamovies-2022/
+https://thefitnesscity.com/the-smoothie-diet-honest-review/
+The Smoothie Diet Honest Review: 21 Day Rapid Weight Loss Program
